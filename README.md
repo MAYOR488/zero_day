@@ -1,1 +1,1 @@
-maymay
+MANDATORY FILE
